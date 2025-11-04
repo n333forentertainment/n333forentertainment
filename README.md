@@ -1,3 +1,3 @@
 ## Hi there 👋
 
-I'm a 15 year old guy
+welcome to my GitHub :3
